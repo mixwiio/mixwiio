@@ -10,13 +10,13 @@ __________
 
 HIHIHI!!!! My name is Mixwiio !
 
-any pronouns !
+‿  any pronouns !
 
- write in whisper, please
+ ‿  write in whisper, please
 
- often AFK if I'm sitting without friends
+ ‿  often AFK if I'm sitting without friends
 
- ru / ua / some eng
+ ‿  ru / ua / some eng
 
  ________
 
@@ -24,11 +24,11 @@ any pronouns !
 
 _________
 
-c + h maybe . . .
+‿  c + h maybe . . .
 
-I'm friendly, so don't be afraid!
+‿  I'm friendly, so don't be afraid!
 
-I don't mind new acquaintances .
+‿  I don't mind new acquaintances . (* ^ ω ^) 
 
 _________
 
@@ -36,7 +36,7 @@ _________
 
 _________
 
-My very favorite friends Ceres213 n Rostiksxx yayy
+‿  My very favorite friends Ceres213 n Rostiksxx yayy ( ´ ω ` ) 
 
 ________
 
