@@ -10,7 +10,7 @@ __________
 
 HIHIHI!!!! My name is Mixwiio !
 
-‿  any pronouns !
+‿  ANY pronouns !
 
  ‿  write in whisper, please
 
