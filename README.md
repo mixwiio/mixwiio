@@ -19,7 +19,7 @@ HIHIHI!!!! My name is Mixwiio !}}$
 
  <p align="center"> $\color{#f1392c}{\textsf{‿  ru / ua / some eng}}$
 
- <p align="center"> $\color{#2db5e8}{\textsf{‿my info tg > t.me/inf0mixw1io}}$
+ https://t.me/inf0mixw1io
 
    ________
 
