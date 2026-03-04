@@ -8,15 +8,16 @@ __________
 
 __________
 
-HIHIHI!!!! My name is Mixwiio !
+<p align="center"> $\color{#f1392c}{\textsf{‿
+HIHIHI!!!! My name is Mixwiio !}}$
 
-‿  ANY pronouns !
+<p align="center"> $\color{#f1392c}{\textsf{‿  ANY pronouns !}}$
 
- ‿  write in whisper, please
+<p align="center"> $\color{#f1392c}{\textsf{‿ write in whisper, please}}$
 
- ‿  often AFK if I'm sitting without friends
+<p align="center"> $\color{#f1392c}{\textsf{ ‿  often AFK if I'm sitting without friends}}$
 
- ‿  ru / ua / some eng
+ <p align="center"> $\color{#f1392c}{\textsf{‿  ru / ua / some eng}}$
 
  ________
 
@@ -24,19 +25,19 @@ HIHIHI!!!! My name is Mixwiio !
 
 _________
 
-‿  c + h maybe . . .
+<p align="center"> $\color{#f1392c}{\textsf{‿  c + h maybe . . .}}$
 
-‿  I'm friendly, so don't be afraid!
+<p align="center"> $\color{#f1392c}{\textsf{‿  I'm friendly, so don't be afraid!}}$
 
-‿  I don't mind new acquaintances . (* ^ ω ^) 
+<p align="center"> $\color{#f1392c}{\textsf{‿  I don't mind new acquaintances . }}$
 
-_________
+  _________
 
 ![Devious Duo (art by @rivavi0 on X)](https://github.com/user-attachments/assets/d30eac0c-e39d-4629-9a56-9c05cc588285)
 
 _________
 
-‿  My very favorite friends Ceres213 n Rostiksxx yayy ( ´ ω ` ) 
+<p align="center"> $\color{#f1392c}{\textsf{‿  My very favorite friends Ceres213 n Rostiksxx yayy}}$
 
 ________
 
