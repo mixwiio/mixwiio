@@ -19,7 +19,9 @@ HIHIHI!!!! My name is Mixwiio !}}$
 
  <p align="center"> $\color{#f1392c}{\textsf{‿  ru / ua / some eng}}$
 
- ________
+ <p align="center"> $\color{#2db5e8}{\textsf{‿my info tg > t.me/inf0mixw1io}}$
+
+   ________
 
 ![spokeishere (1)](https://github.com/user-attachments/assets/b5c17d29-2cb4-4564-bd7d-a94dfd561b42)
 
