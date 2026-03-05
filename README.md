@@ -38,5 +38,6 @@ ___________
 <p align="center"> $\color{#ff001d}{\textsf{‿  DNI darkshippers, former friends, homophobes, pedophiles ahh}}$
 
 
-Uploading IMG_6517.MP4…
+
+https://github.com/user-attachments/assets/364d27ef-6bbe-4b1c-bc10-82e29124abdc
 
