@@ -5,7 +5,7 @@
 __________
 
 <p align="center"> $\color{#238fff}{\textsf{‿
-HIHIHI!!!! My name is Mixwiio !}}$
+HIHIHI!!!! My name is Mixwiio / Миксвио !}}$
 
 <p align="center"> $\color{#238fff}{\textsf{‿  ANY pronouns !}}$
 
