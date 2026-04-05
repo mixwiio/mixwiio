@@ -11,8 +11,6 @@ $\color{#9f917b}{\textsf{uhh . .}}$
 
 <p align="center"> $\color{#9f917b}{\textsf{ANY pronouns !}}$
 
-info tg > t.me/mixinf0
-
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
 
 <p align="center"> $\color{#9f917b}{\textsf{Write in whisper to interact , ok ? . .}}$
