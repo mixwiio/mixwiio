@@ -1,7 +1,7 @@
 ![загруженное (1)](https://github.com/user-attachments/assets/3ecde7f3-cacc-48c1-a011-270cf54577cb)
 
 
-$\color{#9f917b}{\textsf{uhh . .}}$
+uhh . . [my info tg](https://t.me/mixinf0)
 
 -----
 
