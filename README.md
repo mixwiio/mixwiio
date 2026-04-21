@@ -1,50 +1,54 @@
-![загруженное (1)](https://github.com/user-attachments/assets/3ecde7f3-cacc-48c1-a011-270cf54577cb)
+<img align="center" width="2048" height="200" alt="Png" src="https://github.com/user-attachments/assets/fdc4a58e-64fa-4c1d-afca-d6475b17454a"/>
 
+<img width="499" height="209" alt="(ﾟДﾟ) irisa" src="https://github.com/user-attachments/assets/d6e35222-4e23-4d0a-84e3-1c4958189382" />
+<p align="center"> <a href="https://t.me/mixinf0">info on tg св</a>
 
-uhh . . [my info tg](https://t.me/mixinf0)
+_______
 
------
+<p align="center"> $\color{#6d7576}{\textsf{You can call me Mixwiio / Миксвио .}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{HIHIHI!!1!11 My name is Mixwiio / Миксвио !}}$
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
+<p align="center"> $\color{#6d7576}{\textsf{ANY pronouns !}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{ANY pronouns !}}$
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
+<p align="center"> $\color{#6d7576}{\textsf{Write in whisper to interact ok ?}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{Write in whisper to interact , ok ? . .}}$
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
+<p align="center"> $\color{#6d7576}{\textsf{Often OFFTAB if im sitting without friends .}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{Often  OFFTAB if im sitting without friends .}}$
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
+<p align="center"> $\color{#6d7576}{\textsf{RU / UA / SOME ENG .}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{RU / UA/ SOME ENG !}}$
+______
 
------
+<img width="1280" height="732" alt="CCC CEPbIY" src="https://github.com/user-attachments/assets/83c09410-93c6-4bce-be81-edca5e817557" />
 
-![photo_2026-03-13_22-32-40](https://github.com/user-attachments/assets/efa951e8-d429-4ee0-b7b3-a5466af1f643)
+______
 
------
+<p align="center"> $\color{#6d7576}{\textsf{c + h maybe . . .}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{c + h maybe . . .}}$
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
+<p align="center"> $\color{#6d7576}{\textsf{Im friendly, so dont be afraid .}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{Im friendly, so dont be afraid !}}$
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/5fcbaf3f-9646-4363-8d04-6016e004ab83"/>
+<p align="center"> $\color{#6d7576}{\textsf{I dont mind new acquaintances .}}$
 
-<p align="center"> $\color{#9f917b}{\textsf{I dont mind new acquaintances .}}$
+_____
 
-----
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Mansalva&size=30&duration=3500&pause=1000&color=4d7479&center=true&width=750&lines=I+love+you+Rostiksxx+n+Ceres213+!;.+.+." alt="Typing SVG" /></a>
 
-⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+love+u+Rostiksxx+n+Ceres213+!;.+.+.&color=c87e39)](https://git.io/typing-svg)
+<img width="1280" height="720" alt="ссс КОНЧЕННЫЙ" src="https://github.com/user-attachments/assets/8b88cd30-7e98-499b-b82c-679c3c914129" />
 
-![photo_2026-03-13_22-37-32](https://github.com/user-attachments/assets/1bdbf710-ea90-40a0-ae70-771b8089161f)
+_____
 
-----
+<p align="center"> $\color{#52aab5}{\textsf{DNI darkshippers , former friends , homophobes , pedophiles ahh .}}$
 
-<p align="center"> $\color{#ff001f}{\textsf{DNI darkshippers , former friends , homophobes , pedophiles ahh .}}$
+_____
+
+<img width="736" height="245" alt="Без названия (3)" src="https://github.com/user-attachments/assets/2fcba4c2-38b0-4948-b6e4-a32c440adcad" />
