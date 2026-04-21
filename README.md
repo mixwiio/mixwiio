@@ -1,4 +1,4 @@
-<img align="center" width="2048" height="200" alt="Png" src="https://github.com/user-attachments/assets/fdc4a58e-64fa-4c1d-afca-d6475b17454a"/>
+<img align="center" width="2048" height="200" alt="Png" src="https://github.com/user-attachments/assets/c60bd5de-2348-47a9-83f5-f934c5045eae"/>
 
 <img width="499" height="209" alt="(ﾟДﾟ) irisa" src="https://github.com/user-attachments/assets/d6e35222-4e23-4d0a-84e3-1c4958189382" />
 <p align="center"> <a href="https://t.me/mixinf0">info on tg св</a>
