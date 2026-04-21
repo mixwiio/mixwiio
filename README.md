@@ -51,4 +51,4 @@ _____
 
 _____
 
-<img width="736" height="245" alt="Без названия (3)" src="https://github.com/user-attachments/assets/2fcba4c2-38b0-4948-b6e4-a32c440adcad" />
+<img align="center" width="2048" height="200" alt="Png" src="https://github.com/user-attachments/assets/2fcba4c2-38b0-4948-b6e4-a32c440adcad"/>
