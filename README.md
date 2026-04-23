@@ -7,37 +7,37 @@ _______
 
 <p align="center"> $\color{#6d7576}{\textsf{You can call me Mixwiio / Миксвио .}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
 
 <p align="center"> $\color{#6d7576}{\textsf{ANY pronouns !}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
 
 <p align="center"> $\color{#6d7576}{\textsf{Write in whisper to interact ok ?}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
 
 <p align="center"> $\color{#6d7576}{\textsf{Often OFFTAB if im sitting without friends .}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
 
 <p align="center"> $\color{#6d7576}{\textsf{RU / UA / SOME ENG .}}$
 
 ______
 
-<img width="1280" height="732" alt="CCC CEPbIY" src="https://github.com/user-attachments/assets/83c09410-93c6-4bce-be81-edca5e817557" />
+<img width="1470" height="800" alt="Image" src="https://github.com/user-attachments/assets/852a0f1c-3910-4722-bdf9-bfbcf183697a" />
 
 ______
 
-<p align="center"> $\color{#6d7576}{\textsf{c + h maybe . . .}}$
+<p align="center"> $\color{#c85819}{\textsf{c + h maybe . . .}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/66c30007-030d-46f8-b883-1b740437d7d9"/>
 
-<p align="center"> $\color{#6d7576}{\textsf{Im friendly, so dont be afraid .}}$
+<p align="center"> $\color{#c85819}{\textsf{Im friendly, so dont be afraid .}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a08d3bfd-b6b0-4950-95e8-e6705db4f9f1"/>
+<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/66c30007-030d-46f8-b883-1b740437d7d9"/>
 
-<p align="center"> $\color{#6d7576}{\textsf{I dont mind new acquaintances .}}$
+<p align="center"> $\color{#c85819}{\textsf{I dont mind new acquaintances .}}$
 
 _____
 
@@ -47,8 +47,9 @@ _____
 
 _____
 
-<p align="center"> $\color{#52aab5}{\textsf{DNI darkshippers , former friends , homophobes , pedophiles ahh .}}$
+<p align="center"> <img src="https://github.com/user-attachments/assets/a30371ff-902a-4272-ab4b-daa38c0b6333" alt="animated" width="40" height="40"/> $\color{#a2838c}{\textsf{DNI}}$ $\color{#a24f53}{\textsf{darkshippers ,}}$ $\color{#a12222}{\textsf{former friends ,}}$ $\color{#ad8f80}{\textsf{homophobes ,}}$ $\color{#a5634f}{\textsf{pedophiles ahh .}}$ 
 
 _____
 
 <img align="center" width="2048" height="200" alt="Png" src="https://github.com/user-attachments/assets/2fcba4c2-38b0-4948-b6e4-a32c440adcad"/>
+
