@@ -25,7 +25,7 @@ _______
 
 ______
 
-<img width="1470" height="800" alt="Image" src="https://github.com/user-attachments/assets/852a0f1c-3910-4722-bdf9-bfbcf183697a" />
+<img width="1470" height="1000" alt="Image" src="https://github.com/user-attachments/assets/852a0f1c-3910-4722-bdf9-bfbcf183697a" />
 
 ______
 
