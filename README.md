@@ -1,6 +1,7 @@
-<img align="center" width="2048" height="200" alt="Png" src="https://github.com/user-attachments/assets/c60bd5de-2348-47a9-83f5-f934c5045eae"/>
+<img width="2048" height="200" alt="Без названия (4)" src="https://github.com/user-attachments/assets/2aba6299-4bb3-4c0c-be5f-1358315d96ca" />
 
-<img width="499" height="209" alt="(ﾟДﾟ) irisa" src="https://github.com/user-attachments/assets/d6e35222-4e23-4d0a-84e3-1c4958189382" />
+
+<img width="499" height="209" alt="(ﾟДﾟ) irisa" src="https://github.com/user-attachments/assets/b9844eba-7f05-411e-bc20-f49a4c305915" />
 <p align="center"> <a href="https://t.me/mixinf0">info on tg св</a>
 
 _______
@@ -25,7 +26,7 @@ _______
 
 ______
 
-<img width="1470" height="1000" alt="Image" src="https://github.com/user-attachments/assets/852a0f1c-3910-4722-bdf9-bfbcf183697a" />
+<img width="1280" height="960" alt="CFYXPT RHENJQ" src="https://github.com/user-attachments/assets/14274ea0-48e7-45ab-8ec3-2cedfb6f3fa2" />
 
 ______
 
