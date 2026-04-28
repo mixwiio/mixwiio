@@ -36,10 +36,6 @@ ______
 
 <p align="center"> $\color{#c85819}{\textsf{Im friendly, so dont be afraid .}}$
 
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/66c30007-030d-46f8-b883-1b740437d7d9"/>
-
-<p align="center"> $\color{#c85819}{\textsf{I dont mind new acquaintances .}}$
-
 _____
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Mansalva&size=30&duration=3500&pause=1000&color=4d7479&center=true&width=750&lines=I+love+you+Rostiksxx+n+Ceres213+!;.+.+." alt="Typing SVG" /></a>
