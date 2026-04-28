@@ -14,10 +14,6 @@ _______
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
 
-<p align="center"> $\color{#c42b10}{\textsf{DONT COPY MY SKINS .}}$
-
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
-
 <p align="center"> $\color{#6d7576}{\textsf{Write in whisper to interact ok ?}}$
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/d3c8ed54-2e19-4f25-8eaa-1de4bbd8bf18"/>
