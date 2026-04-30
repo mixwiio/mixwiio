@@ -1,6 +1,6 @@
 <p align="center"> <img width="736" height="245" alt="Без названия (4)" src="https://github.com/user-attachments/assets/296edfe3-2bfe-4dcd-966f-652eb3d7b21a" />
 
-<p align="center"> $\color{#a4a482}{\textsf{You can call me Mixwiio / Миксвио . ANY pronouns ! Often OFFTAB if im sitting without friends . Im friendly, so dont be afraid .}}$
+<p align="center"> $\color{#a4a482}{\textsf{You can call me Mixwiio / Миксвио .}}$ $\color{#81a161}{\textsf{ANY pronouns !}}$ $\color{#4c8d5e}{\textsf{Often OFFTAB if}}$ $\color{#4c8d5e}{\textsf{im sitting}}$ $\color{#81a161}{\textsf{without friends . Im friendly, so dont be afraid .}}$
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a92bc8cd-b507-47be-945e-906ac02420e4"/>
 
@@ -21,3 +21,5 @@ ____
 
 <p align="center">
 <img width="400" height="400" alt="о божеее" src="https://github.com/user-attachments/assets/34a0ae46-74e3-4ad6-9b28-55a83862cf8c" />
+
+81a161 4c8d5e
