@@ -21,5 +21,3 @@ ____
 
 <p align="center">
 <img width="400" height="400" alt="о божеее" src="https://github.com/user-attachments/assets/34a0ae46-74e3-4ad6-9b28-55a83862cf8c" />
-
-81a161 4c8d5e
