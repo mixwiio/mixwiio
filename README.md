@@ -13,7 +13,7 @@
 ____
 
 <p align="center">
-<img width="729" height="780" alt="GzL3pWXesYDP2g315--cSvv56anGCNk_k7hhPkgdasJXMUKJRMNZFNaBynUV-4Q4dearqX_7UhqoNqQrgygyvH_4" src="https://github.com/user-attachments/assets/98c812b2-f5e0-41bb-88d9-63236106ccd6" />
+<img width="629" height="680" alt="GzL3pWXesYDP2g315--cSvv56anGCNk_k7hhPkgdasJXMUKJRMNZFNaBynUV-4Q4dearqX_7UhqoNqQrgygyvH_4" src="https://github.com/user-attachments/assets/98c812b2-f5e0-41bb-88d9-63236106ccd6" />
 
 ____
 
