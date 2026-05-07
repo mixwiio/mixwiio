@@ -12,7 +12,7 @@ _____
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a92bc8cd-b507-47be-945e-906ac02420e4"/>
 
-<p align="center"> $\color{#545845}{\textsf{RU / UA / SOME ENG .⌝}}$
+<p align="center"> $\color{#545845}{\textsf{⤷ RU / UA / SOME ENG .⌝}}$
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a92bc8cd-b507-47be-945e-906ac02420e4"/>
 
