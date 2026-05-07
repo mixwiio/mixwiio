@@ -2,17 +2,17 @@
 
 _____
 
-<p align="center"> $\color{#a4a482}{\textsf{You can call me Mixwiio / Миксвио .}}$ 
+<p align="center"> $\color{#a4a482}{\textsf{⌞ You can call me Mixwiio / Миксвио .}}$ 
 
-<p align="center"> $\color{#cdcdaa}{\textsf{ANY pronouns !}}$
+<p align="center"> $\color{#cdcdaa}{\textsf{ˎˊ˗ ANY pronouns !}}$
 
-<p align="center"> $\color{#cdcdaa}{\textsf{Often OFFTAB if im sitting without friends .}}$
+<p align="center"> $\color{#cdcdaa}{\textsf{⤷ ゛Often OFFTAB if im sitting without friends . ˎˊ˗}}$
 
-<p align="center"> $\color{#a4a482}{\textsf{Im friendly, so dont be afraid .}}$
+<p align="center"> $\color{#a4a482}{\textsf{Im friendly, so dont be afraid ⭑.ᐟ}}$
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a92bc8cd-b507-47be-945e-906ac02420e4"/>
 
-<p align="center"> $\color{#545845}{\textsf{RU / UA / SOME ENG .}}$
+<p align="center"> $\color{#545845}{\textsf{RU / UA / SOME ENG .⌝}}$
 
 <p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/a92bc8cd-b507-47be-945e-906ac02420e4"/>
 
