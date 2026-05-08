@@ -19,7 +19,7 @@ _____
 <p align="center"> <a href="https://t.me/mixinf0">info on tg св</a>
 
 ____
-<p align="center"> <img src="https://github.com/user-attachments/assets/541389ed-38c1-4253-872b-72197351b8d5" width="40" height="40"/> $\color{#77a27a}{\textsf{DNI}}$ $\color{#43a882}{\textsf{darkshippers ,}}$ $\color{#439ea8}{\textsf{former friends ,}}$ $\color{#438ca8}{\textsf{homophobes ,}}$ $\color{#74bbca}{\textsf{pedophiles ahh .}}$ 
+<p align="center"> <img src="https://github.com/user-attachments/assets/541389ed-38c1-4253-872b-72197351b8d5" width="40" height="40"/> $\color{#77a27a}{\textsf{٠࣪⭑ DNI}}$ $\color{#43a882}{\textsf{darkshippers ,}}$ $\color{#439ea8}{\textsf{former friends ,}}$ $\color{#438ca8}{\textsf{homophobes ,}}$ $\color{#74bbca}{\textsf{pedophiles ahh ⭑.ᐟ}}$ 
 
 <p align="center">
 <img width="400" height="400" alt="о божеее" src="https://github.com/user-attachments/assets/34a0ae46-74e3-4ad6-9b28-55a83862cf8c" />
