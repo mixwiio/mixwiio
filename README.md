@@ -1,25 +1,29 @@
-<p align="center"> <img width="800" height="400" alt="Без названия (4)" src="https://github.com/user-attachments/assets/b00d657b-7051-4ee3-9d52-c9cc0aea97cc" />
+<img align="left" src="https://github.com/user-attachments/assets/d22e4444-8e3d-4899-81fe-d496775a2e5b" alt="image" width="1000" height="300"/>
 
-_____
+<br> <br>
 
-<p align="center"> $\color{#8ca0b9}{\textsf{⌞ You can call me Mixwiio / Миксвио .}}$ 
+<img align="left" src="https://github.com/user-attachments/assets/f22f54c9-8e01-4009-9f68-4f219a1f0f03" alt="image" width="405" />
 
-<p align="center"> $\color{#caede7}{\textsf{ˎˊ˗ ANY pronouns !}}$
+<br> <br>
 
-<p align="center"> $\color{#caede7}{\textsf{⤷ ゛Often OFFTAB if im sitting without friends . ˎˊ˗}}$
-
-<p align="center"> $\color{#8ca0b9}{\textsf{Im friendly, so dont be afraid ⭑.ᐟ}}$
-
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/da6f5506-8415-4586-ae72-b2e52864e0a0"/>
-
-<p align="center"> $\color{#839aa2}{\textsf{⤷ RU / UA / SOME ENG .⌝}}$
-
-<p align="center"> <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/da6f5506-8415-4586-ae72-b2e52864e0a0"/>
-
-<p align="center"> <a href="https://t.me/mixinf0">info on tg св</a>
-
-____
-<p align="center"> <img src="https://github.com/user-attachments/assets/41f0486f-052a-4ba1-af16-40d95fc59e44"40" height="40"/> $\color{#434449}{\textsf{٠࣪⭑ DNI}}$ $\color{#5e5751}{\textsf{darkshippers ,}}$ $\color{#bda879}{\textsf{former friends ,}}$ $\color{#c47566}{\textsf{homophobes ,}}$ $\color{#5e2b34}{\textsf{pedophiles ahh ⭑.ᐟ}}$ 
+<div align="center"> ㅤ </div>
 
 <p align="center">
-<img width="400" height="400" alt="IMG_9196" src="https://github.com/user-attachments/assets/8cf43041-8de6-4dbb-916a-ad3f294f5257" />
+$\color{#53bfd5}{\textsf{「Call me Mixwiio !! 13 y.o; ANY prns .}}$  <br>
+$\color{#6bedf1}{\textsf{Often OFFTAB if im sittimg without friends .}}$
+$\color{#6bedf1}{\textsf{if I'm hanging out with friends and sleeping, I'm offtab .}}$  <br>
+$\color{#53bfd5}{\textsf{I'm friendly, so don't be afraid !! owo」}}$ <br> 
+
+<p align="center"> <img width="185" alt="image" src="https://github.com/user-attachments/assets/71531ebd-af10-4086-bbb0-1141ec0f14eb" />
+
+<br> <br>
+
+<div align="center"> ㅤ </div>
+
+<img width="100" alt="image" src="https://github.com/user-attachments/assets/7c0a08bf-0a54-403e-bb39-e482630d7e74" /> <br> 
+
+<p align="center"> <img src="https://github.com/user-attachments/assets/65b0410a-6a9c-4ea1-89e8-4770c58efe31"40" height="40"/> $\color{#4eb5b8}{\textsf{٠DNI}}$ $\color{#6bd5ce}{\textsf{darkshippers ,}}$ $\color{#a2fff9}{\textsf{former friends ,}}$ $\color{#6bd5ce}{\textsf{homophobes ,}}$ $\color{#4eb5b8}{\textsf{pedophiles ahh}}$ 
+
+<br> <br> 
+
+<img width="1000" height="300" alt="image" src="https://github.com/user-attachments/assets/f957e3d7-2c9d-4b44-b2b0-21db08313bfb" />
