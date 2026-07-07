@@ -20,8 +20,6 @@ $\color{#53bfd5}{\textsf{I'm friendly, so don't be afraid !! owo」}}$ <br>
 
 <div align="center"> ㅤ </div>
 
-<img width="100" alt="image" src="https://github.com/user-attachments/assets/7c0a08bf-0a54-403e-bb39-e482630d7e74" /> <br> 
-
 <p align="center"> <img src="https://github.com/user-attachments/assets/65b0410a-6a9c-4ea1-89e8-4770c58efe31"40" height="40"/> $\color{#4eb5b8}{\textsf{٠DNI}}$ $\color{#6bd5ce}{\textsf{darkshippers ,}}$ $\color{#a2fff9}{\textsf{former friends ,}}$ $\color{#6bd5ce}{\textsf{homophobes ,}}$ $\color{#4eb5b8}{\textsf{pedophiles ahh}}$ 
 
 <br> <br> 
