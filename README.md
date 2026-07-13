@@ -10,7 +10,7 @@
 
 <p align="center">
 $\color{#53bfd5}{\textsf{「Call me Mixwiio !! 13 y.o; ANY prns .}}$  <br>
-$\color{#6bedf1}{\textsf{Often OFFTAB if im sittimg without friends .}}$ <br>
+$\color{#6bedf1}{\textsf{Often OFFTAB if im sitting without friends .}}$ <br>
 $\color{#6bedf1}{\textsf{if I'm hanging out with friends and sleeping, I'm offtab .}}$  <br>
 $\color{#53bfd5}{\textsf{I'm friendly, so don't be afraid !! owo」}}$ <br> 
 
